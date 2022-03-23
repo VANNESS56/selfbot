@@ -406,7 +406,7 @@ ${week}, ${calender}
 *╰────────────⦁*
 
 *╭─❲ THANKS TO ❳*
-*│*
+*│* • VANNESS TZY〽️
 *│* • Dittaz
 *│* • Nina Kawai
 *│* • Resta Gamteng :v
