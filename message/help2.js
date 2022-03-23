@@ -260,6 +260,7 @@ return`
 
 
 𝗧𝗛𝗔𝗡𝗞𝗦 𝗧𝗢 : 
+ ▢  : VANNESS TZY〽️
  ▢  : Dittaz
  ▢  : Nina kawai
  ▢  : Pemuda Teknologi
